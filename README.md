@@ -1,2 +1,2 @@
 # JoinerRojas.github.io
-ALL ABOUT ME
+ALL ABOUT ME and...
